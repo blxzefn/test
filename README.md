@@ -1,1 +1,1 @@
-!this will contain slef mad malwareamoung other gooffy shit
+!this will contain self made malware amoung other gooffy shit
